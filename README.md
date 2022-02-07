@@ -7,6 +7,12 @@
 
 ![Snake animation](https://github.com/Orlandoj77/Orlandoj77/blob/output/github-contribution-grid-snake.svg)
   
- *[do you trust me?](https://cdn.discordapp.com/attachments/938098239691964486/938258793190535228/Are_you_sure...mov)*  
+ ![](https://media.discordapp.net/attachments/773750792301314089/780822614246817822/emote.gif)
+
+[do you trust me?](https://cdn.discordapp.com/attachments/939969291825070140/940012768084496455/meow.exe)
+
+<div align='left'>
+<img src='https://komarev.com/ghpvc/?username=thenyan&color=blueviolet%27%3E
+</div>
  
  ![](https://media.discordapp.net/attachments/773750792301314089/780822614246817822/emote.gif)
