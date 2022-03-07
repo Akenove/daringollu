@@ -1,6 +1,6 @@
 <h4 align="left">for contact</h4>
 
-- Discord: [Akenove#6732](https://discord.com/users/793143103162286110)
+- Discord: [Akenove#6969](https://discord.com/users/793143103162286110)
 <br/>
 
 ![](https://komarev.com/ghpvc/?username=daringollu)
